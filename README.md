@@ -39,7 +39,7 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   ❤️[ my fav ship fsk !! adminviruss , azutime , buidlertela , paycheck , elliordued1 , voidbuger , 666cola .404x1optaph . [MY OC X TAPH]'❤️
 
-  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha , bassiecocoa , bobetteginger ,goob x shrimpo(goob top). ballonbowl , ]
+  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha , bassiecocoa , bobetteginger , puppyshrim(goob top). ballonbowl , ]
 
   [😭 I HATE DARKSHIP/PROSHIP IN FANDOMs:DW,FSK, EVERY FANDOMS ],[DNIUF SHIPS = BUGERPIZZA , DOUBLEFEDORA AND ALL X VEER ,😭]
   
